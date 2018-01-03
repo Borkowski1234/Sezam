@@ -1,0 +1,2 @@
+# Sezam
+Jestem Polak mały
